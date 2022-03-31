@@ -13,6 +13,8 @@ There are several ways to reach me:
 
 Discord Server: https://discord.gg/H7HkTJkknn
 
+And more... Feel free to ask me in Discord DMs
+
 <!---
 BooleanBoy123/BooleanBoy123 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
